@@ -39,6 +39,15 @@ EJEMPLO 9
 ![image](https://github.com/user-attachments/assets/6bcbc072-c270-4409-8bec-9e3eb1d13eba)
 ![image](https://github.com/user-attachments/assets/6a49a7fe-2f00-4be8-905e-f5b3588870bf)
 
+EJEMPLO 10 
+![image](https://github.com/user-attachments/assets/4a8ade14-0ad2-417c-ac3c-0a5a7016eca6)
+![image](https://github.com/user-attachments/assets/f86b995f-44a6-45a8-8bf6-aaa4bf623ea9)
+
+EJEMPLO 11
+
+
+
+
 
 
 
