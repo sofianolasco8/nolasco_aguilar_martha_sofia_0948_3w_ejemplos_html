@@ -44,6 +44,11 @@ EJEMPLO 10
 ![image](https://github.com/user-attachments/assets/f86b995f-44a6-45a8-8bf6-aaa4bf623ea9)
 
 EJEMPLO 11
+![image](https://github.com/user-attachments/assets/6ac59fdf-d18f-456f-aff2-e40892895309)
+![image](https://github.com/user-attachments/assets/7e888ba7-b33c-48ea-826d-232b3c96d224)
+
+EJEMPLO 12
+
 
 
 
