@@ -48,8 +48,11 @@ EJEMPLO 11
 ![image](https://github.com/user-attachments/assets/7e888ba7-b33c-48ea-826d-232b3c96d224)
 
 EJEMPLO 12
-![image](https://github.com/user-attachments/assets/8b03e612-707b-47df-914a-a3cbb4f0446c)
-![image](https://github.com/user-attachments/assets/c1e63cf7-d6b1-44c1-91fd-3f93748b1565)
+![image](https://github.com/user-attachments/assets/8ce55533-3691-444d-a907-c7cd5747f5b7)
+![image](https://github.com/user-attachments/assets/cd2bc5f4-4f36-43c2-8e4c-86abc57df231)
+
+
+
 
 
 
