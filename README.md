@@ -9,6 +9,11 @@ EJEMPLO 2
 ![image](https://github.com/user-attachments/assets/a4957953-0e9a-44f5-90dc-e6e5979ef8fe)
 
 EJEMPLO 3 
+![image](https://github.com/user-attachments/assets/44677990-7d3e-4c7f-8e40-d442aa7f037d)
+![image](https://github.com/user-attachments/assets/2c64554b-34b1-428a-ae8f-f504c717602e)
+
+EJEMPLO 4
+
 
 
 
