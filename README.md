@@ -27,6 +27,13 @@ EJEMPLO 6
 ![image](https://github.com/user-attachments/assets/79014cd1-a5cc-4976-8506-e1f54099c168)
 ![image](https://github.com/user-attachments/assets/a20c1804-6141-403d-bcdd-24ceab0caaff)
 
+EJEMPLO 7 
+![image](https://github.com/user-attachments/assets/a6b9cbb3-ad23-4507-b52f-c074b4988ed9)
+![image](https://github.com/user-attachments/assets/dd2bb17f-930e-4969-af94-4ffa414e4827)
+
+
+
+
 
 
 
